@@ -1,2 +1,2 @@
-# cursedvalues.github.io
-An apolitical quiz.
+# fernvalues.github.io
+PICK ONE DAMN IT
